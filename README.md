@@ -14,7 +14,7 @@ astrological red flags in girls experienced by me in real interaction KP astro a
 lets start my experience on others chart examine
 Girls often lies stay aware they will reject i seen 
 35 girls examined 25 agreed others lied some triggered
-3 three or 4 planets in same house red flag seen on the spot
+[ 3 three or 4 planets in same house red flag seen on the spot ]
 ```
 > ## NOTE: any three conjuctions matched or LORDS interchanged  in a chart that depicts vishkanya or red flag girl
 
