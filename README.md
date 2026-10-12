@@ -392,17 +392,31 @@ if three indicators or 2 big satisfied run away
 
 INDIA content-
 MARRIAGE IS BACKUP RETIREMENT PLAN OF BAD GIRLS & 75% R BAD 
+
 THEY GUARD THEIR LIES HIDE BODYCOUNT SEEKS STABILITY FROM MEN & EMOTIONALLY MANIPULATES MEN 
+
 KRISHNA SADA SAHAYTE (pkka non virgin h)
+
 MAHAKAL KI DEEWANI ( 100% non virgn h)
+
 11:11 ( multiple bodycount bna liye)
+
  श्री गणेशाय नमः 🪬✨🧿 (multiple bodycount )
+ 
 FLOWER WALLPAPER (multiple AFFAIR)
+
 english words ka use krne wali
+
 BHRAMCHARYA FOLLOW KRTI HU❌MANIPULATE KRTI HU✅
+
 YE TO GALAT H NA❌MENE KIA HENA✅
+
 fake spritual=reg flag
+
 fake emotional =red flag and emotional manipulation
+
 fake nice girl syndrome=red flag
+who bears r moon ring 💍 in hand astrologically 
+
 RUN AWAY THESE ARE RED FLAGS KUNDALI NHI DIKAEGI KBHI
 THEY ARE SUCKED UP EVIL SOULS BLOOD SUCKERS BRAIN DRAINERS
